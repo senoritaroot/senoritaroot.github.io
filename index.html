@@ -15,7 +15,7 @@
 <table width="100%" height="100%">
 <tbody><tr><td align="center">
 <img alt="3 BROTHER ID" src="https://i.hizliresim.com/kh4fraj.gif" width="500px">
-
+<h2>REVONZY ADLI OROSPU COCU MITESSIGORTAYA BIZDE SHELL ATTIK INDEXLERIMIZ SILINDI ONDAN DOLAYI IFRAME ATTIK + OLARAK SENIN UCUBE INDEXLERINDE SILINMIS SEN KIME KAFA TUTUYORSUN ULAN MAYMUN OROSPU EVLADI GRAM BEYNIN YOK MILLETE SALLAMAKTAN FAKIR KALMISSIN FUKARA OROSPU COCU SANKI BIZ SHELL ATMAYI BILMIYORUZ - SENORITA ALLAHIN</h2>
 
 <a href="https://wisedark.org/"><div style="color:red;font:20pt Courier New;">Wisedark.org Katıl<b><br><br></a>
 	<body>
