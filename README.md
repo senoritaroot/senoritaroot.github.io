@@ -6,7 +6,7 @@
 	<meta name="description" content="The World Will Bow to the Turks">
 	<link href="https://fonts.googleapis.com/css2?family=Gugi" rel="stylesheet">
 </head>
-    <body bgcolor="black">
+    <body bgcolor="white">
     <center><br><br>
     <div class="imagehold">
 <body>
